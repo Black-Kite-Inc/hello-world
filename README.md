@@ -1,1 +1,1 @@
-# hello-world
+Black Kite is disrupting traditional third party risk management practices worldwide by providing cybersecurity experts with full visibility they’ve never experienced before. The award-winning intelligence platform continues to push the limits on predictive insights, allowing those liable to make more informed business decisions with straightforward, defensible findings.
